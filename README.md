@@ -1,5 +1,5 @@
 ## Quick facts
-- Creative web developer and UI designer. 💻
+- Creative Web Developer and UI Designer. 💻
 - Climate Justice activist. 🌍🍉
 - Enjoying the intersection of aesthetic expression, human-first design, and durable technical functionality.
 
