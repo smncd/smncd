@@ -1,5 +1,3 @@
-# I'm Simon
-
 ## Quick facts
 - Creative web developer and UI designer. 💻
 - Climate Justice activist. 🌍🍉
